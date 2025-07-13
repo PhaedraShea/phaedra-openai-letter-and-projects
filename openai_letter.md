@@ -25,8 +25,7 @@ I want a job at OpenAI—not for status, but for strategy. Not to learn your cul
 If you’re serious about a better future, then don’t just build for people like me.  
 **Build with us.**
 
-Reach me at [insert your email here].
-
+Reach me at [Phaedrasdrawdy@gmail.com]
 Let’s talk.  
 Let’s make it real.
 
